@@ -4,3 +4,4 @@
 
 ## INFO
 * if you are interessted into buying some m on yurian write a issue here with your discordname & i write ASAP :)
+* payment method: PayPal only
